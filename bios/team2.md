@@ -1,4 +1,4 @@
 *Team 2 bios!* Hello!!! :satisfied:
 Gideon McFarland is a rising senior at Princeton in the Astrophysics department. He enjoys cosmology and the focus of his recent research has been quasar identification and spectrum analysis. He hails from Texas, where he spent the first 18 years of his life, and he has been enjoying his new life in New Jersey so far. He hopes to go to graduate school in astrophysics, but isn't quite sure about what career he wants to pursue.
 
-Fahim Jenneto 
+Fahim Jenneto i am a rising senior. 
